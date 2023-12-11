@@ -1,6 +1,6 @@
 Hi, I'm @striker-l! It's nice to meet you. 
 
-I manage projects and people in the general Customer Service and Technical Support zone to help everyone get what they need. 🎉
+I am a Mac system administrator on the mid-Atlantic riviera.🎉
 
 My goals right now are to get better at coding and build some experimental projects that work effectively, serve people well, and reflect my values.
 
